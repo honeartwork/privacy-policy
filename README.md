@@ -1,1 +1,1 @@
-# privacy-policy
+honeartwork.com privacy policy
